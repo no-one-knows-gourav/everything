@@ -1,0 +1,1 @@
+We hold dearly to things that make our lives better - like some photos, videos or gifts. We protect them with all our might. You are someone I want to protect with everything I have, cherish you forever and hold you close to me. But sometimes, there are some memories that protect you. 
