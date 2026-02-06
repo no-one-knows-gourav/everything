@@ -3,4 +3,4 @@ see something familiar?
 maybe a hint lies in what led you here
 
 --- 
-This hint takes you to: protectedtext/(this hint)
+This hint takes you to: protectedtext/(this hint after removing the first word)
